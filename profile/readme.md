@@ -67,10 +67,10 @@ They're perfect for short breaks because they're easy to pick up and play. Plus,
 
 *To make the most of your gaming experience, keep these tips in mind:*
 
-1. Play Responsibly: While unblocked games are great for breaks, don't let them interfere with important tasks or responsibilities.
-2. Stay Safe: Use websites that are known for hosting safe and secure games. Avoid downloading anything unless it's from a trusted source.
-3. Explore Different Genres: Don't stick to one type of game. Exploring different genres can keep your gaming experience fresh and exciting.
-4. Challenge Yourself: Set personal goals, like beating a high score or completing a difficult level. It makes gaming even more rewarding.
+1. **Play Responsibly:** While unblocked games are great for breaks, don't let them interfere with important tasks or responsibilities.
+2. **Stay Safe:** Use websites that are known for hosting safe and secure games. Avoid downloading anything unless it's from a trusted source.
+3. **Explore Different Genres:** Don't stick to one type of game. Exploring different genres can keep your gaming experience fresh and exciting.
+4. **Challenge Yourself:** Set personal goals, like beating a high score or completing a difficult level. It makes gaming even more rewarding.
 
 ## The Social Aspect of Unblocked Games
 
@@ -80,7 +80,7 @@ Engage in a competitive sporting event, form a cooperative team, or simply discu
 
 Some schools and workplaces even organize informal gaming sessions during breaks. Unblocked games can be a great way to bond with colleagues or classmates over shared interests. Who doesn't love a little friendly competition?
 
-## Why Unblocked Games Are Here to Stay
+## Why Unblocked Games Are Here to Stay?
 
 It's simple to understand why unblocked games are becoming more and more popular. They're fun, accessible, and perfect for quick bursts of entertainment.
 
